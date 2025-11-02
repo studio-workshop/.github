@@ -1,4 +1,4 @@
-# 🎨 Welcome to Studio Workshop!
-🛠️ Where imagination becomes play
+# Welcome to Studio Workshop! 👋✨
+Imagine. Build. Play 💡🛠️🎮
 
-We build bold, creative Roblox experiences—from epic adventures to jaw-dropping challenges. Our mission? To spark fun, fuel creativity, and keep players coming back for more.
+We make a variety of Roblox games — from cozy hangouts to unexpected adventures. Every project is built to spark curiosity, reward discovery, and give players something worth returning to.
